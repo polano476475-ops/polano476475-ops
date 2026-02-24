@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm fine<br>
+I'm Goods<br>
 
 
 ## 🌐 Socials:
