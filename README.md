@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Goods<br>
+I'm Good boy<br>
 
 
 ## 🌐 Socials:
